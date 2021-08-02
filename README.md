@@ -1,0 +1,1 @@
+O curso está muito legal, preciso organizar meu tempo . Não posso perder essa oportunidade.
